@@ -1,0 +1,1 @@
+# -C-Users-nutza032-Downloads-Compressed-1729555797_Thai_Translation_MOD-1729555797-localisat
